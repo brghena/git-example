@@ -1,4 +1,4 @@
  * She-Ra and the Princesses of Power
- * Maya and the Three
+ * The Owl House
  * Cowboy Bebop (Live Action)
  * Cowboy Bebop (Anime)
